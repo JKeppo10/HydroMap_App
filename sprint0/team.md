@@ -4,3 +4,4 @@
 |Gurprince Gill |A |218960724 |pod@my.yorku.ca |4372355929 |have_anicelife |
 |Nicholas Sarbinowski |B |218212811 |nicksarb@my.yourku.ca |9059556423 |nick4335 |
 
+permanent discord link: https://discord.gg/GXZWHTMRNB
